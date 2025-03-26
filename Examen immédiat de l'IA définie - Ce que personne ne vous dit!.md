@@ -66,4 +66,4 @@ Immediate Definity AI représente une avancée majeure dans le monde du trading 
 
 **[https://immediatedefinity2025.hashnode.dev/avis-sur-le-immediate-definity-ai-un-examen-par-un-expert ](https://immediatedefinity2025.hashnode.dev/avis-sur-le-immediate-definity-ai-un-examen-par-un-expert )**
 
-**[https://immediatedefinity2025.hashnode.dev/evaluation-de-immediate-definity-ai-2025-veritable-ou-faux](https://immediatedefinity2025.hashnode.dev/evaluation-de-immediate-definity-ai-2025-veritable-ou-faux) **
+**[https://immediatedefinity2025.hashnode.dev/evaluation-de-immediate-definity-ai-2025-veritable-ou-faux](https://immediatedefinity2025.hashnode.dev/evaluation-de-immediate-definity-ai-2025-veritable-ou-faux)**
